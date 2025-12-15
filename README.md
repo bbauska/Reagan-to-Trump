@@ -2,7 +2,8 @@
 
 ## greased palms
 
-From 1984 to currently 2025. 41 years the US govrenemnt has been corporate and billionaire centric. Almost every new law enacted has been pro-rich, pro-corporate and anti-healthcare, anti-middle class.
+From 1984 to currently 2025. 41 years the US government has been corporate and billionaire centric. Almost every new law enacted has been 
+pro-rich, pro-corporate and anti-healthcare, anti-middle class.
 
 The pace of lowering taxes for bilolonaires and corpoate people-hood is astounding.
 
