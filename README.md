@@ -1,4 +1,4 @@
-# reagan-to-trump
+# Reagan to Trump
 
 ## greased palms
 
