@@ -1,4 +1,4 @@
-<!-- style.css of Zombie-Politics; zommbie.bauska.org -->
+<!-- style.css of Reagan-to-Trump; reagan-trump.bauska.org -->
 @import url(https://fonts.googleapis.com/css?family=Crimson+Text:400,700,900,400italic,700italic,900italic|Playfair+Display:400,700,900,400italic,700italic,900italic|Rock+Salt:400);
 
 *,
@@ -198,7 +198,7 @@ sup {
   font-weight: 900;
 }
 
-/*** MEDIA QUERIES ends approx line 328 ***/
+/*** MEDIA QUERIES ends approx line 322 ***/
 @media only screen and ( min-width: 50em ) {
   .open-book {
     margin: 1em;
