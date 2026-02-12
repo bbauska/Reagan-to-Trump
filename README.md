@@ -1,6 +1,6 @@
 # Reagan to Trump
-
-## greased palms
+## 2 (two) wannabe Dictators
+### greased palms
 
 From 1984 to currently 2025. 41 years the US government has been corporate and billionaire centric. Almost every new law enacted has been 
 pro-rich, pro-corporate and anti-healthcare, anti-middle class.
