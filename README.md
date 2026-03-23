@@ -5,12 +5,12 @@
 From 1984 to currently 2025. 41 years the US government has been corporate and billionaire centric. Almost every new law enacted has been 
 pro-rich, pro-corporate and anti-healthcare, anti-middle class.
 
-The pace of lowering taxes for bilolonaires and corpoate people-hood is astounding.
+The pace of lowering taxes for billionaires and corpoate people-hood is astounding.
 
-Trillions have moved from EVERYONE to the greediest .001% just since 1984. Reaganomics is killing democracy. Reagan was worse than Trump.
+Over 50 Trillion dollas has moved from the American people to the new oligarchs comprising the greediest .001% just since 1984. Reaganomics is killing democracy. Reagan was worse than Trump. 
+
 He deregulated big oil and made the world filthy and uninhabitable.
-
-He deregulated the media forming Fox 'news'. It's stupid 'boomers' only news source. 
+He deregulated the media forming Fox 'noise'. It's stupid 'boomers' only news source. 
 
 7.2 million Americans march against Trump and his sycophants & are labelled Hamas and anti-democrats. No arrests. No injuries. No damages.
 
