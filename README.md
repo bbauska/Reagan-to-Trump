@@ -1,7 +1,7 @@
 # Reagan to Trump
 ## 2 (two) wannabe Dictators
 ### greased palms
-
+#### And there is no one coming to save US! 
 From 1984 to currently 2025. 41 years the US government has been corporate and billionaire centric. Almost every new law enacted has been 
 pro-rich, pro-corporate and anti-healthcare, anti-middle class.
 
