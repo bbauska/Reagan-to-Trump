@@ -1,4 +1,11 @@
 # Reagan to Trump
+The tide is turning. Since Reagan's 1981 election, this has been going on for over 45 long-ass 
+years. Time we take back our nation. And the World will follow. Hungary beat us to the punch. 
+Elections on 4/11/2026 gave them a democratically-elected president.
+
+Just hope the new Hungarian president listens to the people and stops the grift and theft of 
+Hungary's resources and human capital.
+
 ## 2 (two) wannabe Dictators
 ### greased palms
 #### And there is no one coming to save US! 
