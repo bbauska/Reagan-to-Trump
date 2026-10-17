@@ -28,3 +28,26 @@ promotes policies such as privatization, free trade, and fiscal austerity. The t
 1970s and 1980s as a response to perceived failures of state-led economic models. It is heavily associated with the policies implemented 
 by leaders like U.K. Prime Minister Margaret Thatcher and U.S. President Ronald Reagan.
 
+## And now a list of words defining the World's worst human being.
+Trump is. . . .
+
+abhorrent, amoral, anti-democratic, arrogant, authoritarian, autocratic, avaricious, backward, base, 
+benighted, bloated, blubbering, blundering, bogus, bombastic, boorish, bullying, bungling, cheap, 
+childish, clownish, clueless, common, confused, conniving, corrupt, cowardly, crass, creepy, cretinous, 
+criminal, crowing, crude, cruel, dangerous, delusional, demagogic, depraved, devious, dim, disgraceful, 
+dishonest, disloyal, disreputable, dissembling, dog-whistling, doltish, dull, elitist, embarrassing, 
+erratic, fascist, foolish, gauche, gluttonous, greedy, grudging, hate-filled, hateful, haughty, heedless, 
+homophobic, humorless, hypocritical, idiotic, ignoble, ignominious, ignorant, immature, inarticulate, 
+indolent, inept, inferior, insane, intemperate, irresponsible, kakistocratic, kleptocratic, laughable, 
+loathsome, loud-mouthed, low-life, lying, mendacious, meretricious, monstrous, moronic, narcissistic, 
+needy, oafish, odious, orange, outrageous, pampered, pandering, perverse, petty, predatory, puffed-up, 
+racist, repulsive, rude, sanctimonious, semi-literate, senile, senseless, sexist, shady, shameless, 
+sheltered, slimy, sluglike, sniveling, squeamish, stupid, swaggering, tacky, thick, thin-skinned, 
+thuggish, toadying, transphobic, trashy, treasonous, twisted, ugly, unappealing, uncultured, uninformed, 
+unprincipled, unread, unrefined, vain, venal, vicious, vile, and vulgar.
+
+Aside from those peccadilloes (we all have our faults, don’t we?), I have no problem with the guy.
+
+Problem is, he doesn't know the meaning of half the words listed defining him.
+
+
